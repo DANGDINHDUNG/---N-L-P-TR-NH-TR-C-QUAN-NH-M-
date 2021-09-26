@@ -1,0 +1,1 @@
+# ---N-L-P-TR-NH-TR-C-QUAN-NH-M-
